@@ -15,9 +15,9 @@ Eu tenho especialização Lato Sensu em Sociopsicologia pela Fundação Escola d
 Atualmente, sou mentor do programa Inovativa Brasil. Fiz parte do júri do Prêmio Profissional Digital da Associação Brasileira dos Agentes Digitais (ABRADI) em 2018, 2019, 2020 e 2021 e do Prêmio Brasil Criativo 2019.
 
 ### ONDE MAIS
-* Linkedin
-* Instagram
-* Facebook
+* [Linkedin](https://www.linkedin.com/in/tiagoyonamine/)
+* [Instagram](https://instagram.com/tiagoyonamine)
+* [Facebook](https://www.facebook.com/tiagoyonamine)
 
 ### ENDEREÇO
-Inovabra Habitat, Avenida Angélica, 2529, Consolação, São Paulo/SP 01227-200
+Inovabra Habitat, [Avenida Angélica, 2529](https://www.google.com/maps/place/trampos.co/@-23.554167,-46.662198,15z/data=!4m5!3m4!1s0x0:0x7665facc06c8407e!8m2!3d-23.554167!4d-46.662198), Consolação, São Paulo/SP 01227-200
