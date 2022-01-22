@@ -10,7 +10,7 @@ Em 2009, entrei no Grupo Abril, trabalhar em um projeto sobre desenvolvimento su
 
 Depois de 2 anos, saí de lá para me dedicar exclusivamente à trampos.
 
-Eu tenho especialização Lato Sensu em Sociopsicologia pela Fundação Escola de Sociologia e Política de São Paulo e graduação em Design de Multimídia pelo Centro Universitário Senac.
+Eu tenho MBA em Administração e Finanças pela Pontifícia Universidade Católica (PUC-RS), especialização Lato Sensu em Sociopsicologia pela Fundação Escola de Sociologia e Política de São Paulo e graduação em Design de Multimídia pelo Centro Universitário Senac.
 
 Atualmente, sou mentor do programa Inovativa Brasil. Fiz parte do júri do Prêmio Profissional Digital da Associação Brasileira dos Agentes Digitais (ABRADI) em 2018, 2019, 2020 e 2021 e do Prêmio Brasil Criativo 2019.
 
